@@ -1,1 +1,0 @@
-Quite possibly the best looking and most functionality packed interface for the Hive blockchain.
