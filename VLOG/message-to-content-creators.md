@@ -17,6 +17,20 @@ So just posting some movies, popular "established" artists music or just outrigh
 No matter what your game is or your reason for doing what you are doing please **do not** call yourself a "content creator". You are a "content theif". 
 
 Wow this goes back to my philosophy on life. "Dont be a dick."
+---
+Follow me on hive with [PeakD](https://peakd.com/@unklebonehead)
 
+Follow me on twitter [@BoneheadUnkle](https://twitter.com/BoneheadUnkle)
+
+Follow me on the [fediverse](https://mastodon.social/@unklebonehead)
+
+Watch me on [LBRY](https://open.lbry.com/@boneheadmedia:d)
+
+Watch me on [3Speak](https://3speak.online/user/unklebonehead)
+
+Watch me **LIVE** on [Vimm.TV](https://www.vimm.tv/unklebonehead)
+
+If you sign up for Vimm.TV I would appreciate it if you used my referral! [Vimm.TV](https://www.vimm.tv/unklebonehead?ref=False
+---
 
 
