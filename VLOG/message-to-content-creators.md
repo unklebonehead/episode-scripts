@@ -33,4 +33,5 @@ Watch me **LIVE** on [Vimm.TV](https://www.vimm.tv/unklebonehead)
 If you sign up for Vimm.TV I would appreciate it if you used my referral! [Vimm.TV](https://www.vimm.tv/unklebonehead?ref=False
 ---
 
-
+All Good In The Wood by Audionautix is licensed under a Creative Commons Attribution license (https://creativecommons.org/licenses/by/4.0/)
+Artist: http://audionautix.com/
